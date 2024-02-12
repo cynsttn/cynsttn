@@ -2,7 +2,7 @@
 - 👀 I’m interested in compter.
 - 🌱 I’m currently learning html.
 - 💞️ I’m looking to collaborate on  ...
-- 📫 How to reach me bynthiasutton@gmal.com.
+- 📫 How to reach me cynthiasutton@gmal.com.
 - 😄 Pronouns: Miss.
 - ⚡ Fun fact: ...
 
